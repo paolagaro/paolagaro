@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning SQL
 - 💞️ I’m looking to collaborate on Real Estate Analysis
-- 📫 How to reach me: E-mail paola_baez@icloud.com, PAOLA BAEZGARO(Linkedin),paolagbe(IG).
+- 📫 How to reach me: E-mail paola_baez(at)icloud(dot)com, (Linkedin)PAOLA, (IG)BAEZGARO,paolagbe.
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: ...
 
