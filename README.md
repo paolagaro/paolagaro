@@ -1,4 +1,4 @@
- 👋 Hi, my name is Paola Baez (@paolagaro) I am currently studying data analyst✨ at MTECH and work in the field of finance.
+ 👋 Hi, my name is Paola Baez (@paolagaro) I am current student data analyst✨ at MTECH and work in the field of finance.
  
  I really ✨like solve problems,history,astronomy,physics,traveling,learning about new cultures,
  music,dancing, I enjoy watching my favorite series and read a good book occasionally.
